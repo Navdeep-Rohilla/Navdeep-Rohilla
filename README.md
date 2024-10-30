@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me :-
 - 1) Email id = navdeeprohilla2006@gmail.com
-- 2) Linkedin = Navdeep Rohilla
+- 2) Linkedin = www.linkedin.com/in/navdeeprohilla-n20b27r30
+- 3) Instagram = navdeeprohilla17 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
