@@ -45,7 +45,7 @@ I'm a second-year B.Tech student majoring in **Artificial Intelligence & Data Sc
 
 ## 📬 Let's Connect
 
-- 💼 [LinkedIn](https://linkedin.com/in/navdeeprohilla)  
+- 💼 [LinkedIn](https://linkedin.com/in/navdeeprohilla20)  
 - 📧 navdeeprohilla03@gmail.com  
 - 🧑‍💻 [GitHub](https://github.com/Navdeep-Rohilla)  
 - 🎥 [YouTube](https://youtube.com/@CodeWithNavdeep)
